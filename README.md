@@ -1,1 +1,0 @@
-# bulmaca.github.io
